@@ -1,3 +1,3 @@
 # your neighbourhood salad.
 
-yeah, i make stuff. sometimes useful. sometimes not. it depends.
+i make stuff. sometimes it's useful, sometimes it's not.
